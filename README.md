@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kiennt102
-- 👀 I’m interested in anything that might be interesting.
+- 👀 I’m interested in anything that might be interesting and human ability.
 - 🌱 There are so many things I want to learn.
 - 📫 How to reach me :
 - Facebook:https://www.facebook.com/kien.nt.56211/
