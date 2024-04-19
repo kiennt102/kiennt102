@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kiennt102
 - 👀 I’m interested in anything that might be interesting and human ability.
-- 🌱 There are so many things I want to learn.
+- 🌱 There are so many things I want to learn. "Everyone has to start somewhere"!!!
 - 📫 How to reach me :
 - Facebook:https://www.facebook.com/kien.nt.56211/
 - Instagram:https://www.instagram.com/k1en.nt__/
